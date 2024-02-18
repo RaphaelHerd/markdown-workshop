@@ -1,0 +1,1 @@
+https://www.open-telekom-cloud.com/de/produkte-services/core-services/web-application-firewall
